@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @ElaineHarvey
+- Now,I'm a new Minecraft plugins developer
+- I make my own plugin not often,Instead,I study other editor's plugins and try editting them
+- Also, I'm trying to learn Java and Linux
+- I also owned two Minecraft Servers:
+  -lx.elainesurvival.top  -  a offline survival server for Minecraft 1.18-1.18.1
+  -pk.elainesurvival.top  -  a ManHunt minigame server for Minecraft 1.18-1.18.1
+- If you are interesting in my server,you can join our Discord server:  https://discord.gg/7eWfMj85UR
+- If you are China user,my QQ number:3252669202
