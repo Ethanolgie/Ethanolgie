@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ElaineHarvey
-- Now,I'm a new Minecraft plugins developer
-- I make my own plugin not often,Instead,I study other editor's plugins and try editting them
-- Also, I'm trying to learn Java and Linux
+- Hi, I’m Ethanolgie.
+- As a Musician I am actually not a practised programmer.
+- Now I got mastered of Photoshop,Premiere Pro,Fruity loops,and I'm therefore able to make MV,Music and so on.
+- My name: Ethanolgie consists of Ethanol and Maggie. Ethanol = CH3CH2OH,Maggie is a common name.
