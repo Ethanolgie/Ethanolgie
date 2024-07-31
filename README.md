@@ -1,4 +1,2 @@
 - Hi, I’m Ethanolgie.
 - As a Musician I am actually not a practised programmer.
-- Now I got mastered of Photoshop,Premiere Pro,Fruity loops,and I'm therefore able to make MV,Music and so on.
-- My name: Ethanolgie consists of Ethanol and Maggie. Ethanol = CH3CH2OH,Maggie is a common name.
